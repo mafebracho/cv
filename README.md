@@ -1,4 +1,3 @@
-![Image](https://digitalsynopsis.com/wp-content/uploads/2017/02/beautiful-color-gradients-backgrounds-158-angel-care.png)
 ### MARIA FERNANDA BRACHO
 
 ----
